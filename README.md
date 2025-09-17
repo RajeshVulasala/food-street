@@ -109,4 +109,4 @@ For questions or suggestions, feel free to connect:<br>
 
 GitHub: Rajesh Vulasala<br>
 
-Email: your-rajeshvulasala20@gamail.com
+Email: rajeshvulasala20@gamail.com
